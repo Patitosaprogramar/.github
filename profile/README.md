@@ -36,7 +36,8 @@ Patitos a Programar es un espacio para aprender sin miedo a equivocarse, compart
 
 ## 📫 Contacto
 
-💌 patitos.a.programar.1@gmail.com
+[📺 Visita mi canal en YouTube](https://www.youtube.com/@PatitosaProgramar)  
+[💌 Escríbeme al correo del canal](mailto:patitosaprogramar@gmail.com)  
 
 ---
 
